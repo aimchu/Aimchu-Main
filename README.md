@@ -1,0 +1,3 @@
+# Aimchu-Main
+
+**COMNIG SOON!**
