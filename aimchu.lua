@@ -1,2 +1,1 @@
-# Aimchu-Main
-   **COMING SOON**
+--Coming soon
